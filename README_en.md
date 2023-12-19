@@ -1,4 +1,4 @@
-# Collection of AI Side Business Money-Making Information
+# Collection of AI Side Business Money-Making Information 
 This is a comprehensive collection of information on AI side businesses and money-making opportunities. It aims to search the entire web and compile methods, technologies, tools, as well as platforms and channels that can be used to make money through AI side businesses. The goal is to break through the information cocoon in the AI era, enabling everyone to utilize AI technology for side hustles and earn extra income beyond their regular jobs.
 
 # Table of Contents
